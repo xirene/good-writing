@@ -9,3 +9,4 @@
 #### 겁내지마 아무것도 시작하지 않았잖아<br/> - 신한카드<br/>
 #### 첫째. 내가 틀렸을지도 모른다.<br/> 둘째. 내가 바꿀 수 있는 사람은 없다.<br/> 셋째. 그때는 맞고 지금은 틀리다<br/>넷째. 말하지 말고 들어라, 답하지 말고 물어라<br/>다섯째 존경은 권리가 아니라 성취다<br/> - 꼰대 방지 5계명<br/>
 #### '가치 있는 것' 대부분은 부딪혀야 얻을 수 있다.<br/> - 헨리 나우엔<br/>
+#### All that is gold does not glitter<br/>황금이라고 다 반짝이진 않으며<br/><br/>Not all those who wander are lost<br/>방랑하는 자라고 다 길잃은 것은 아니다<br/><br/>The old that is strong does not wither<br/>오래되었을지언정 강한 것은 시들지 않으며<br/><br/>Deep roots are not reached by the frost<br/>깊은 뿌리에는 서리가 미치지 못한다<br/><br/>From the ashes a fire shall be woken<br/>그 잿더미 속에서 불꽃이 깨어날 것이요<br/><br/>A light from the shadows shall spring<br/>한 줄기 빛이 그림자들 사이에서 솟아오를지니<br/><br/>Renewed shall be blade that was broken<br/>망가졌던 칼날은 다시 새로이 벼려지고<br/><br/>The crownless again shall be king<br/>왕관없는 자 다시 왕이 되리라<br/><br/>- 골목쟁이네 빌보가 순찰자 시절의 아라고른을 위해 지어준 시<br/>
